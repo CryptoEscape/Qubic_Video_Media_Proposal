@@ -1,4 +1,5 @@
 Qubic Video Media Campaign Proposal (The Great Crypto Escape)
+
 Submitted by:
 The Great Crypto Escape (12000+ online followers)
 Campaign Duration:
